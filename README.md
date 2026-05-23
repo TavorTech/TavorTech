@@ -1,4 +1,4 @@
-# Hi, I' Hi, I'm Tavor 👋m Tavor 👋
+# Hi, I' Hi, I'm Tavor 👋
 
 I am a Computer Science graduate from The Technion
 
